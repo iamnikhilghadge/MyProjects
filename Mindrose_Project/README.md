@@ -1,1 +1,0 @@
-# Mindrose_Project
